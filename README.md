@@ -6,5 +6,5 @@
 
 💞️ I’m looking for someone .... Hmmm, i think no, already have one ...
 
-📫 Wanna talk with me? Tag or message me on twitter <a href="https://twitter.com/ywskarepmu">@ywskarepmu</a>
+📫 Wanna talk with me? Tag or message me on twitter <a href="https://twitter.com/hamlogic">@hamlogic</a>
 
